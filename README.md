@@ -1,2 +1,0 @@
-# Karthi-Keyan-K
-. 
